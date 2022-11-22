@@ -1,1 +1,1 @@
-čo tu akože robíš nikto tieto blbosti predsa nečíta (ㆆ_ㆆ)???
+(ㆆ_ㆆ)
